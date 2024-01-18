@@ -113,3 +113,29 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Strawberry Funnel Cake
+
+Ingredients:
+- 1 cup all-purpose flour
+- 1 tsp baking powder
+- 1/2 tsp salt
+- 1 tbsp granulated sugar
+- 3/4 cup milk
+- 1 large egg
+- 1 tsp vanilla extract
+- Vegetable oil for frying
+- Powdered sugar for dusting
+
+Instructions:
+1. In a mixing bowl, whisk together the flour, baking powder, salt, and sugar.
+2. In a separate bowl, beat the egg and then add the milk and vanilla extract. Mix well.
+3. Gradually add the wet ingredients to the dry ingredients, stirring until smooth. The batter should have a pourable consistency.
+4. Heat vegetable oil in a deep fryer or a large, deep skillet to 375°F (190°C).
+5. Pour the batter into a funnel or squeeze bottle, holding your finger over the bottom to prevent the batter from flowing out.
+6. Position the funnel over the hot oil and release the batter in a spiral motion, creating a lacy pattern. Fry until golden brown, flipping halfway to ensure even cooking.
+7. Remove the funnel cake from the oil and drain on paper towels to remove excess oil.
+8. Repeat the process with the remaining batter.
+9. Dust the funnel cakes with powdered sugar.
+10. Top with fresh strawberry slices and a dollop of whipped cream.
+11. Serve immediately and enjoy your delicious homemade Strawberry Funnel Cake!
